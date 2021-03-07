@@ -1,0 +1,1 @@
+# Regular-varying-tail-paper
